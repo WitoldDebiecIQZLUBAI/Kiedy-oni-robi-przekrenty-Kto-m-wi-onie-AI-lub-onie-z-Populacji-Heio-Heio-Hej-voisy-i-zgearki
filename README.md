@@ -1,0 +1,1 @@
+# Kiedy-oni-robi-przekrenty-Kto-m-wi-onie-AI-lub-onie-z-Populacji-Heio-Heio-Hej-voisy-i-zgearki
